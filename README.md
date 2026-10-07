@@ -1,0 +1,2 @@
+# premium-gyotaku-direct-001-gyotaku-direct-print-ink-rub
+Tired of scattered notes, lost ink recipes, and forgotten fish species from your gyotaku sessions? The Gyotaku Direct Print &amp; Ink Rub Fish Craft Hub centralizes everything you need to master direct printing and ink rub techniques in one organized Notion workspace.  This template eliminates the chaos of managing multiple gyotaku projects by combinin
